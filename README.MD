@@ -14,9 +14,9 @@ Modo de preparo
 
     Preaqueça o forno a 180 ºC (temperatura média). Unte uma fôrma redonda de 24 cm de diâmetro e 7 cm de altura com manteiga. Polvilhe com farinha de trigo, chacoalhe e bata sobre a pia para tirar o excesso.
 
+Alteração
 
-
-    
+Alteração 2
 
     Numa tigela, coloque a farinha, o sal e o fermento, passando pela peneira. Misture e reserve. 
     Lave e descasque as cenouras. Descarte a ponta da rama e corte as cenouras em rodelas. 
